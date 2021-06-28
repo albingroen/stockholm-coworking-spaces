@@ -1,0 +1,20 @@
+- Wework
+- Goto10
+- Impact Hub
+- Creative Hub
+- Kolonien
+- Knackeriet
+- Norrsken House
+- Helio
+- United spaces
+- TheLoft
+- The Park
+- Convendum
+- Changers Hub
+- The Castle
+- Epicenter
+- H2 Health Hub
+- Embassy House
+- DG97
+- No18
+- 7A
